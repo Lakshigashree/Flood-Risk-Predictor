@@ -37,4 +37,4 @@ Floods are one of the most severe natural disasters affecting millions worldwide
 
 - Lakshiga Shree S P
 - Email : lakshigashree822@gmail.com
-- https://www.linkedin.com/in/lakshiga-shree-s-p-1908a6282 [Connect with me on Linkedin](url)
+- [Connect with me on Linkedin](https://www.linkedin.com/in/lakshiga-shree-s-p-1908a6282)
